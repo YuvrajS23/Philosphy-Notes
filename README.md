@@ -159,7 +159,7 @@ By ***Yuvraj Singh (210050172)***
 ### 4.2.1 The Middle Path of the Buddha'a Life
 #### Life in a Palace -
   - He was brought up as a prince in a royal palace, fully unknown from any trace of *suffering*.
-  - The Four Sights - {*Old age, Sickness, Death* and a *Religious Renouncer*} made him aware of suffering(1-3) and a possibility to get rid of it(4). So he left the palace to wander in the forest in search of truth. **घर की मुर्ग़ी दाल बराबर ||** :unamused:
+  - The Four Sights - {*Old age, Sickness, Death* and a *Religious Renouncer*} made him aware of suffering(1-3) and a possibility to get rid of it(4). So he left the palace to wander in the forest in search of truth. **घर की मुर्ग़ी दाल बराबर ||** 
 #### Life in the Forest -
   -  In forest, he spent periods learning from two different teachers but was not satisfied with their teaching.
   -  He then met *5 ascetics*, who believed that practising austerities such as extreme fasting, bodily pain, etc would lead to rewards in a future life.
