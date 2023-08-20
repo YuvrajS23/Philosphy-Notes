@@ -21,13 +21,17 @@ By ***Yuvraj Singh (210050172)***
   -  दंडनीति (Daṇḍanīti)-> political science and law
 - Ānvīkṣikī is the **systematic / intellectual inquiry** without alluding any scriptural and spiritual leanings as it is the labour of human intellect and reasoning or logic.
 - Ānvīkṣikī is ever accepted to be the lamp of all branches of learning, the means for all kinds of activities and the basis of all virtues.
+
 >  प्रदीपः सर्वविद्यानाम् उपायः सर्वकर्मणाम् ।
     आश्रयः सर्वधर्माणां शश्वद् आन्वीक्ष्हिकी मता ||
+
 ##### 2. Darshan {*दर्श् – to see*} -
 - **Vision of things** or the **insight** into the nature of reality.
+
 ##### 3. Mata {*मत*} -
 - Mata means **opinion**, **thought**, and therefore a *doctrine* or a *theory*.
 - Also used for the context of *religion* in India.
+
 #### 1.1.2. Two traditions/divisions of Indian Philosophy -
 ##### 1. Orthodox System {*Astika Darshana*} : 
 - Accept the *authority of the Vedas*.
